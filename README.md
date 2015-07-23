@@ -1,0 +1,2 @@
+# hanging-mail-organizer
+Installing a mail organizer on your kitchen wall can be extremely efficient and beneficial. Now all important mail can be stored safely in one place. You can even use the &lt;a href=http://justsolutionsproducts.com/product/sort-it-magnetic-fridge-hanging-mail-organizer/>&lt;b>hanging mail organizer &lt;/b>&lt;/a> to keep separate piles of incoming and outgoing mail. Moreover, if your monthly bills are displayed where you can see them, you are a lot less likely to miss important deadlines.
